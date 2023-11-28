@@ -1,0 +1,1 @@
+# Average-Global-IQ-Analysis
